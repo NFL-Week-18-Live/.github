@@ -1,6 +1,6 @@
 # 🏈 Watch NFL Week 18 Live Stream Online – Don't Miss the Action! 🎥
 
-<meta name="google-site-verification" content="cMnG1sHX9uriWvqvqhx0vW9Utir1mq9nY2gTMOWN_BY" />
+<meta name="google-site-verification" content="Apib7-x98H0j5cPqHWwSMm6dNU4GmODRoqxLiDzdx9I" />
 
 Welcome, football fans! Get ready for **NFL Week 18**, where every game counts. Whether you're rooting for playoff hopefuls or just love the thrill of football, you can catch **every touchdown, every tackle, and every unforgettable play live online**. 
 
